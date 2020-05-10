@@ -1,0 +1,1 @@
+# EasyMoneyzcz.github.io
